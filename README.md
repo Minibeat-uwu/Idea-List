@@ -1,7 +1,7 @@
 # Idea-List
 I decided to bunch up all the ideas here cause it would be fun if there are people who would be interested to the same stuff. XD
 
-##List Below
+## List Below
 Possible ideas I liked has arrow to it!
 
 - Strap style branch cutter
